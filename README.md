@@ -1,3 +1,3 @@
 # Sidan-Profile
 
-all personal links to contact me ➡️  [https://sidan-profile.netlify.app/]
+All My Personal Links To Contact and Know About Me ➡️  [https://sidan-profile.netlify.app/]
